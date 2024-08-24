@@ -8,6 +8,7 @@
 
 <a href="https://justwatchflim.com/en/movie/533535/deadpool-wolverine?is" rel="nofollow"><img src="https://camo.githubusercontent.com/917e6ed5c302499242165dcc02bdbce85c075fd21b35918eb9c0b771855261b8/68747470733a2f2f7374617469632e7769787374617469632e636f6d2f6d656469612f6232343966395f61646163386637306662336634356238383639313639366337376465313866337e6d76322e676966"></a>
 
+
 A listless Wade Wilson toils away in civilian life with his days as the morally flexible mercenary, Deadpool, behind him. But when his homeworld faces an existential threat, Wade must reluctantly suit-up again with an even more reluctant Wolverine.
 
 Released: 2024-07-24 Runtime: 128 minutes Genre: Action, Comedy, Science Fiction Stars: Ryan Reynolds, Hugh Jackman, Emma Corrin, Matthew Macfadyen, Dafne Keen Director: Fabian Nicieza, Rob Liefeld, Kevin Feige, Shawn Levy, Rhett Reese
